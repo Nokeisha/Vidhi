@@ -1,5 +1,4 @@
-Down-by-the way 
-
+Down by the bay
 Down by the bay
 Where the watermelons grow
 Back to my home
